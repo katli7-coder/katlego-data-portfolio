@@ -53,7 +53,7 @@ Coming soon! Stay tuned for:
 
 I'm always open to feedback, collaboration, and mentorship. Feel free to connect with me on:
 
-- [LinkedIn](#) *(Add your profile link here)*
+- [LinkedIn](#) *(www.linkedin.com/in/katlego-montle-9995361b8)*
 - [Email](mailto:kmontle55@icloud.com)
 
 ---
